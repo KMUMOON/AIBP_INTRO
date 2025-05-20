@@ -1,0 +1,1 @@
+저의 특기는 python programming 입니다 🥹
